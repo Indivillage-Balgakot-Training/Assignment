@@ -1,2 +1,2 @@
 we are working on the github
-we are working on indivillage 
+we are working on indivillage website
